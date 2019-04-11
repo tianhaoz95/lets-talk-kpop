@@ -11,14 +11,23 @@ Yeah, yeah, yeah
 ---
 
 천사 같은 Hi 끝엔 악마 같은 Bye
+
 After a sweet hi, there’s always a bitter bye
+
 매번 미칠듯한 High 뒤엔 뱉어야 하는 Price
+
 After every crazy high, there’s price you have to pay
+
 이건 답이 없는 Test 매번 속더라도 Yes
+
 There’s no answer to this, test I’ll always fall for it yes
+
 딱한 감정의 노예
+
 I’m a slave to my emotions
+
 얼어 죽을 사랑해
+
 Screw this heartless love
 
 ---
