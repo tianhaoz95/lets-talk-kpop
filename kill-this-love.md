@@ -20,7 +20,9 @@ There’s no answer to this, test I’ll always fall for it yes
 I’m a slave to my emotions
 얼어 죽을 사랑해
 Screw this heartless love
- 
+
+---
+
 Here I come kick in the door
 가장 독한 걸로 줘
 Give me the strongest one
@@ -36,7 +38,9 @@ With just one word you’re like starstruck again
 That warm nervous feeling, extreme excitement
 마치 heaven 같겠지만 You might not get it in
 Felt like heaven, but you might not get it in
- 
+
+---
+
 Look at me Look at you 누가 더 아플까
 Look at me, look at you who will be in more pain?
 You smart 누가 You are
@@ -51,14 +55,18 @@ What should I do, I can’t stand myself being so weak
 While I force myself to cover my eyes
 사랑의 숨통을 끊어야겠어
 I need to bring an end to This Love
- 
+
+---
+
 Let's kill this love!
 Yeah, yeah, yeah
 Rum, pum, pum, pum, pum, pum, pum
 Let's kill this love!
 Yeah, yeah, yeah
 Rum, pum, pum, pum, pum, pum, pum
- 
+
+---
+
 Feelin’ like a sinner
 Its so fire with him I go boo hoo
 He said you look crazy
@@ -68,7 +76,9 @@ Got me all messed up
 His love is my favorite
 But you plus me
 Sadly can be dangerous
- 
+
+---
+
 Lucky me, lucky you
 결국엔 거짓말 we lie
 After all, in the end we lie
@@ -83,19 +93,25 @@ What should I do, I can’t stand myself being so weak
 While I force myself to hide my tears
 사랑의 숨통을 끊어야겠어
 I need to bring an end to This Love
- 
+
+---
+
 Let's kill this love!
 Yeah, yeah, yeah
 Rum, pum, pum, pum, pum, pum, pum
 Let's kill this love!
 Yeah, yeah, yeah
 Rum, pum, pum, pum, pum, pum, pum
- 
+
+---
+
 We all commit to love
 That makes you cry
 We’re all making love
 That kills you inside
- 
+
+---
+
 We must kill this love
 Yeah, it's sad but true
 Gotta kill this love
