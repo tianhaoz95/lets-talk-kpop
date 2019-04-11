@@ -175,18 +175,28 @@ Rum, pum, pum, pum, pum, pum, pum
 ---
 
 We all commit to love
+
 That makes you cry
+
 We’re all making love
+
 That kills you inside
 
 ---
 
 We must kill this love
+
 Yeah, it's sad but true
+
 Gotta kill this love
+
 Before it kills you too
+
 Kill this love
+
 Yeah, it's sad but true
+
 Gotta kill this love
+
 Let's kill this love!
 
