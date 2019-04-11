@@ -1,9 +1,14 @@
 # Kill This Love - Blackpink
 
-Yeah, yeah, yeah
-Blackpink in your area!
+---
+
 Yeah, yeah, yeah
 
+Blackpink in your area!
+
+Yeah, yeah, yeah
+
+---
 
 천사 같은 Hi 끝엔 악마 같은 Bye
 After a sweet hi, there’s always a bitter bye
