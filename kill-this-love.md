@@ -161,10 +161,15 @@ I need to bring an end to This Love
 ---
 
 Let's kill this love!
+
 Yeah, yeah, yeah
+
 Rum, pum, pum, pum, pum, pum, pum
+
 Let's kill this love!
+
 Yeah, yeah, yeah
+
 Rum, pum, pum, pum, pum, pum, pum
 
 ---
