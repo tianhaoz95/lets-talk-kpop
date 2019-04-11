@@ -65,27 +65,45 @@ Felt like heaven, but you might not get it in
 ---
 
 Look at me Look at you 누가 더 아플까
+
 Look at me, look at you who will be in more pain?
+
 You smart 누가 You are
+
 You smart like who? You are
+
 두 눈에 피눈물 흐르게 된다면
+
 If you cry tears of blood from both eyes
+
 So sorry 누가 You are
+
 So sorry like who? You are
+
 나 어떡해 나약한 날 견딜 수 없어
+
 What should I do, I can’t stand myself being so weak
+
 애써 두 눈을 가린 채
+
 While I force myself to cover my eyes
+
 사랑의 숨통을 끊어야겠어
+
 I need to bring an end to This Love
 
 ---
 
 Let's kill this love!
+
 Yeah, yeah, yeah
+
 Rum, pum, pum, pum, pum, pum, pum
+
 Let's kill this love!
+
 Yeah, yeah, yeah
+
 Rum, pum, pum, pum, pum, pum, pum
 
 ---
