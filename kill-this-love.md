@@ -33,19 +33,33 @@ Screw this heartless love
 ---
 
 Here I come kick in the door
+
 가장 독한 걸로 줘
+
 Give me the strongest one
+
 뻔하디 뻔한 그 love
+
 So obvious, that love
+
 더 내놔봐 give me some more
+
 Give me more, give me some more
+
 알아서 매달려 벼랑 끝에
+
 Cling onto the edge of the cliff if you want
+
 한마디면 또 like 헤벌레 해
+
 With just one word you’re like starstruck again
+
 그 따뜻한 떨림이 새빨간 설렘이
+
 That warm nervous feeling, extreme excitement
+
 마치 heaven 같겠지만 You might not get it in
+
 Felt like heaven, but you might not get it in
 
 ---
