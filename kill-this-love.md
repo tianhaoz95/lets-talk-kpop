@@ -129,18 +129,31 @@ Sadly can be dangerous
 ---
 
 Lucky me, lucky you
+
 결국엔 거짓말 we lie
+
 After all, in the end we lie
+
 So what so what
+
 만약에 내가 널 지우게
+
 If I end up forgetting you
+
 된다면 So sorry
+
 I’m not sorry
+
 나 어떡해 나약한 날 견딜 수 없어
+
 What should I do, I can’t stand myself being so weak
+
 애써 눈물을 감춘 채
+
 While I force myself to hide my tears
+
 사랑의 숨통을 끊어야겠어
+
 I need to bring an end to This Love
 
 ---
