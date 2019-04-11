@@ -109,13 +109,21 @@ Rum, pum, pum, pum, pum, pum, pum
 ---
 
 Feelin’ like a sinner
+
 Its so fire with him I go boo hoo
+
 He said you look crazy
+
 Thank you baby
+
 I owe it all to you
+
 Got me all messed up
+
 His love is my favorite
+
 But you plus me
+
 Sadly can be dangerous
 
 ---
