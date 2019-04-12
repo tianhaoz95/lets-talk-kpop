@@ -18,19 +18,19 @@ Yeah, yeah, yeah
 
 매번 미칠듯한 High 뒤엔 뱉어야 하는 Price
 
-After every crazy high, there’s price you have to pay
+> After every crazy high, there’s price you have to pay
 
 이건 답이 없는 Test 매번 속더라도 Yes
 
-There’s no answer to this, test I’ll always fall for it yes
+> There’s no answer to this, test I’ll always fall for it yes
 
 딱한 감정의 노예
 
-I’m a slave to my emotions
+> I’m a slave to my emotions
 
 얼어 죽을 사랑해
 
-Screw this heartless love
+> Screw this heartless love
 
 ---
 
@@ -38,31 +38,31 @@ Here I come kick in the door
 
 가장 독한 걸로 줘
 
-Give me the strongest one
+> Give me the strongest one
 
 뻔하디 뻔한 그 love
 
-So obvious, that love
+> So obvious, that love
 
 더 내놔봐 give me some more
 
-Give me more, give me some more
+> Give me more, give me some more
 
 알아서 매달려 벼랑 끝에
 
-Cling onto the edge of the cliff if you want
+> Cling onto the edge of the cliff if you want
 
 한마디면 또 like 헤벌레 해
 
-With just one word you’re like starstruck again
+> With just one word you’re like starstruck again
 
 그 따뜻한 떨림이 새빨간 설렘이
 
-That warm nervous feeling, extreme excitement
+> That warm nervous feeling, extreme excitement
 
 마치 heaven 같겠지만 You might not get it in
 
-Felt like heaven, but you might not get it in
+> Felt like heaven, but you might not get it in
 
 ---
 
