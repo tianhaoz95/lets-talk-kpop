@@ -14,7 +14,7 @@ Yeah, yeah, yeah
 
 천사 같은 Hi 끝엔 악마 같은 Bye
 
-After a sweet hi, there’s always a bitter bye
+> After a sweet hi, there’s always a bitter bye
 
 매번 미칠듯한 High 뒤엔 뱉어야 하는 Price
 
